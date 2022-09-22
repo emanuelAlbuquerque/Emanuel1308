@@ -1,4 +1,4 @@
-## Olá, Eu sou Emanuel1303
+## Olá, meu nome é José Emanuel da Silva Souza Albuquerque
 
 - 👋 Oi, eu sou @emanuelAlbuquerque
 - 👀 Estou interessado em o ingressar no mercado de trabalho da tecnologia e me aprofundar nos conteúdos.
